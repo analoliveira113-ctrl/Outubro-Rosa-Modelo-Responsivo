@@ -1,0 +1,1 @@
+# Outubro-Rosa-Modelo-Responsivo
